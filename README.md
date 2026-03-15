@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-EANC831009HTCSTR09
+EANC831009HTCSTR09
